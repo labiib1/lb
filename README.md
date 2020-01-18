@@ -1,0 +1,2 @@
+# lb
+pencari ilmu pengetahuan
